@@ -1,4 +1,4 @@
-# 
+# ذكي Affinity Designer تأثيرات لـ Mac OS | جديد Affinity Designer تأثيرات لـ PC Windows. مع لوحات الرسم و معالجة RAW — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
